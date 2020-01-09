@@ -1,0 +1,1 @@
+Midterm Project and RML project were both group projects (group of 3).
